@@ -1,2 +1,0 @@
-# rank-rains
-SEO Website
